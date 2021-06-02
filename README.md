@@ -1,4 +1,4 @@
-### Hello! I'm Khalidah Abdul-Muqtadir 👋
+### Hello! I'm Khalidah Abdul-Muqtadir 👋 👩 (brown skin)
 
 - 🔭 I’m currently working on my Bachelors of Science in Computer Sciene
 - 🌱 I’m currently hoping to learn a lot about software development in the
